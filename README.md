@@ -6,7 +6,7 @@ Welcome to BRC20 Mint Service, the innovative platform allowing you to mint BRC2
 
 For inquiries, collaborations, or just to say hello:
 
-### **Telegram**: [@cashblaze127](https://t.me/cashblaze127)
+### **Telegram**: [Abracadabra](https://t.me/hunter0409)
 
 ## Why Choose Us? 🌟
 
